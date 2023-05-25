@@ -1,14 +1,14 @@
 ━━━━━━━━━━━━━━━━━━━━
 
 <h2 align="center">
-    ──「 ғᴀʟʟᴇɴ ✘ ᴍᴜsɪᴄ 」──
+    ──「 ᴍɪss ʀɪᴄʜ 」──
 </h2>
 
 <p align="center">
   <img src="https://te.legra.ph/file/1f070ea3147e2a3ef44e4.jpg">
 </p>
 
-_**ᴀᴠᴀɪʟᴀʙʟᴇ ᴏɴ ᴛᴇʟᴇɢʀᴀᴍ ᴀs [ғᴀʟʟᴇɴ ✘ ᴍᴜsɪᴄ](https://t.me/FallenMusicBot)**_
+_**ᴀᴠᴀɪʟᴀʙʟᴇ ᴏɴ ᴛᴇʟᴇɢʀᴀᴍ ᴀs [ᴍɪss ʀɪᴄʜ](https://t.me/missrich)**_
 ━━━━━━━━━━━━━━━━━━━━
 
 <p align="center">
